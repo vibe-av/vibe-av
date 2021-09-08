@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @vaibhav
+- 👀 I’m interested in styles and logics
+- 🌱 I’m currently learning js and searching for a platform to make some apps
+- 💞️ I’m looking to collaborate on anything related to styling, designing, cracking logics and anything related to web development
+- 📫 How to reach me ↓ 
+- INSTAGRAM -> https://instagram.com/vaibhavmishra__?utm_medium=copy_link
+- E-MAIL : vaibhav141200@gmail.com
